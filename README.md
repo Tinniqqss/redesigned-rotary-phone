@@ -1,2 +1,2 @@
 # redesigned-rotary-phone
-Xinniqqssi
+Tinniqqssi
